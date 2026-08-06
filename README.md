@@ -8,3 +8,5 @@ FIRST UPDATE WILL BE ON 8/7/26
 IF YOU WANT TO BE REMOVED, SEND A MESSAGE ASKING TO REMOVE YOURSELF
 
 IF ANYONE IS PROBLEMATIC OR WEIRD, PLEASE LET ME KNOW
+
+  ![GitHub Views](https://komarev.com/ghpvc/?username=FOLKTOWN&amp;color=4000ff&amp;style=flat&amp;label=<3)
