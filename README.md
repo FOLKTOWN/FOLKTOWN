@@ -22,44 +22,44 @@ IF ANYONE IS PROBLEMATIC OR WEIRD, PLEASE LET ME KNOW
 
   CHARACTERS
 
-  [@dirkskatana](link) IS FOLKTOWN'S DIRK STRIDER
+  [@dirkskatana](https://github.com/dirkskatana) IS FOLKTOWN'S DIRK STRIDER
   
-  @bigguykoi IS FOLKTOWN'S TONY STARK
+  [@bigguykoi](https://github.com/bigguykoi) IS FOLKTOWN'S TONY STARK
 
-  @robertreynoldsirl IS FOLKTOWN'S ROBERT REYNOLDS
+  [@robertreynoldsirl](https://github.com/robertreynoldsirl) IS FOLKTOWN'S ROBERT REYNOLDS
 
-  @xolariis IS FOLKTOWN'S BERDLY
+  [@xolariis](https://github.com/xolariis) IS FOLKTOWN'S BERDLY
 
-  @zandiik IS FOLKTOWN'S DOTTORE
+  [@zandiik](https://github.com/zandiik) IS FOLKTOWN'S DOTTORE
 
-  @pupfies IS FOLKTOWN'S WIFIES
+  [@pupfies](https://github.com/pupfies) IS FOLKTOWN'S WIFIES
 
-  @SQUEVILs IS FOLKTOWN'S SQUIDDO
+  [@SQUEVILs](https://github.com/SQUEVILs) IS FOLKTOWN'S SQUIDDO
 
-  @Kittyypop IS FOLKTOWN'S C.C
+  [@Kittyypop](https://github.com/Kittyypop) IS FOLKTOWN'S C.C
 
-  @misfortunes-s IS FOLKTOWN'S DR. HARLOW
+  [@misfortunes-s](https://github.com/misfortunes-s) IS FOLKTOWN'S DR. HARLOW
 
-  @poisonedritual IS FOLKTOWN'S TWOTIME
+  [@poisonedritual](https://github.com/poisonedritual) IS FOLKTOWN'S TWOTIME
 
-  @Haalandpaws IS FOLKTOWN'S ERLING BRAUT HAALAND
+  [@Haalandpaws](https://github.com/Haalandpaws) IS FOLKTOWN'S ERLING BRAUT HAALAND
 
-  @qnakin IS FOLKTOWN'S ANAKIN SKYWALKER
+  [@qnakin](https://github.com/qnakin) IS FOLKTOWN'S ANAKIN SKYWALKER
 
-  @Z4WARUD0 IS FOLKTOWN'S DIO BRANDO
+  [@Z4WARUD0](https://github.com/Z4WARUD0) IS FOLKTOWN'S DIO BRANDO
 
-  @01-800-PAPU IS FOLKTOWN'S ALDO_GEO
+  [@01-800-PAPU](https://github.com/01-800-PAPU) IS FOLKTOWN'S ALDO_GEO
 
-  @swimmypol IS FOLKTOWN'S EVIL MORTY
+  [@swimmypol](https://github.com/swimmypol) IS FOLKTOWN'S EVIL MORTY
 
-  @ranyakumopilled IS FOLKTOWN'S RAN YAKUMO
+  [@ranyakumopilled](https://github.com/ranyakumopilled) IS FOLKTOWN'S RAN YAKUMO
 
-  @VIL-ILY IS FOLKTOWN'S ROOK HUNT
+  [@VIL-ILY](https://github.com/VIL-ILY) IS FOLKTOWN'S ROOK HUNT
 
-  @UICTIM IS FOLKTOWN'S THE DARK LORD
+  [@UICTIM](https://github.com/UICTIM) IS FOLKTOWN'S THE DARK LORD
 
-  @TheBeast0fDeceit IS FOLKTOWN'S SHADOW MILK COOKIE
+  [@TheBeast0fDeceit](https://github.com/TheBeast0fDeceit) IS FOLKTOWN'S SHADOW MILK COOKIE
 
-  @Cute5y IS FOLKTOWN'S SPOKEISHERE
+  [@Cute5y](https://github.com/Cute5y) IS FOLKTOWN'S SPOKEISHERE
 
-  @plumpest IS FOLKTOWN'S WILLIAM
+  [@plumpest](https://github.com/plumpest) IS FOLKTOWN'S WILLIAM
