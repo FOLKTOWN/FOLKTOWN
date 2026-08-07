@@ -63,3 +63,17 @@ IF ANYONE IS PROBLEMATIC OR WEIRD, PLEASE LET ME KNOW
   [@Cute5y](https://github.com/Cute5y) IS FOLKTOWN'S SPOKEISHERE
 
   [@plumpest](https://github.com/plumpest) IS FOLKTOWN'S WILLIAM
+
+  [@Aspenolia](https://github.com/Aspenolia) IS FOLKTOWN'S AZURE WRATH
+
+  [@Juxtaposition13](https://github.com/Juxtaposition13) IS FOLKTOWN'S DABI
+
+  [@N1PPL3](https://github.com/N1PPL3) IS FOLKTOWN'S DANIEL LARSON
+
+  [@SUGURUBERRY](https://github.com/SUGURUBERRY) IS FOLKTOWN'S SPIDERMAN
+
+  [@TheHacker7n7](https://github.com/TheHacker7n7) IS FOLKTOWN'S THATMOB
+
+  [@ReplicaOfAffection](https://github.com/ReplicaOfAffection) IS FOLKTOWN'S FUKUA
+
+  [@peirshallmortals](https://github.com/peirshallmortals) IS FOLKTOWN'S NOELLE HOLIDAY
