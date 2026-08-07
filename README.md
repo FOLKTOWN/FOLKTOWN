@@ -28,7 +28,7 @@ IF ANYONE IS PROBLEMATIC OR WEIRD, PLEASE LET ME KNOW
 
   [@robertreynoldsirl](https://github.com/robertreynoldsirl) IS FOLKTOWN'S ROBERT REYNOLDS
 
-  [@xolariis](https://github.com/xolariis) IS FOLKTOWN'S BERDLY
+  [@B3RDLY](https://github.com/B3RDLY) IS FOLKTOWN'S BERDLY
 
   [@zandiik](https://github.com/zandiik) IS FOLKTOWN'S DOTTORE
 
