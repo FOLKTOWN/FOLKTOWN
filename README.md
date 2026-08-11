@@ -9,6 +9,8 @@ IF YOU WANT TO BE REMOVED, SEND A MESSAGE ASKING TO REMOVE YOURSELF (MESSAGES AR
 
 IF ANYONE IS PROBLEMATIC OR WEIRD, PLEASE LET ME KNOW
 
+IF I MAKE ANY MISTAKES, DONT BE AFRAID TO LET ME KNOW ASWELL
+
   ![GitHub Views](https://komarev.com/ghpvc/?username=FOLKTOWN&amp;color=4000ff&amp;style=flat&amp;label=<3)
 
 
@@ -66,7 +68,7 @@ IF ANYONE IS PROBLEMATIC OR WEIRD, PLEASE LET ME KNOW
 
   [@Aspenolia](https://github.com/Aspenolia) IS FOLKTOWN'S AZURE WRATH
 
-  [@Juxtaposition13](https://github.com/Juxtaposition13) IS FOLKTOWN'S DABI
+  [@WAR-HeavenPierceHer](https://github.com/WAR-HeavenPierceHer) IS FOLKTOWN'S DABI
 
   [@N1PPL3](https://github.com/N1PPL3) IS FOLKTOWN'S DANIEL LARSON
 
@@ -77,3 +79,43 @@ IF ANYONE IS PROBLEMATIC OR WEIRD, PLEASE LET ME KNOW
   [@ReplicaOfAffection](https://github.com/ReplicaOfAffection) IS FOLKTOWN'S FUKUA
 
   [@peirshallmortals](https://github.com/peirshallmortals) IS FOLKTOWN'S NOELLE HOLIDAY
+  
+  [@2099s](https://github.com/2099s) IS FOLKTOWN'S MIGUEL O'HARA
+
+  [@eversleeping-town](https://github.com/eversleeping-town) IS FOLKTOWN'S ADA WONG
+
+  [@WoundedRibbons](https://github.com/WoundedRibbons) IS FOLKTOWN'S KAVEH
+  
+  [@Chemicalshot](https://github.com/Chemicalshot) IS FOLKTOWN'S WEMMBU
+  
+  [@monoxiides](https://github.com/monoxiides) IS FOLKTOWN'S EGGCHAN
+  
+  [@zyvism](https://github.com/zyvism) IS FOLKTOWN'S LOVESHOT
+  
+  [@computerfanaticc](https://github.com/computerfanaticc) IS FOLKTOWN'S HARLEY SAWYER  
+  
+  [@kiwiconicc](https://github.com/kiwiconicc) IS FOLKTOWN'S SAIKI KUSUO  
+  
+  [@proxy4slender](https://github.com/proxy4slender) IS FOLKTOWN'S OTHERWORLDLY_NIGHT 
+
+  [@planetlords](https://github.com/planetlords) IS FOLKTOWN'S MAPICC
+
+  [@gamblersi](https://github.com/gamblersi) IS FOLKTOWN'S CHANCE
+  
+  [@Camrynrapid](https://github.com/Camrynrapid) IS FOLKTOWN'S CAMRYN RAPID  
+  
+  [@nvthingmore](https://github.com/nvthingmore) IS FOLKTOWN'S YEON SIEUN  
+  
+  [@bunchoffriends](https://github.com/bunchoffriends) IS FOLKTOWN'S ANTHONY PO
+  
+  [@develesto](https://github.com/develesto) IS FOLKTOWN'S DEVESTO  
+  
+  [@12r0ds](https://github.com/12r0ds) IS FOLKTOWN'S BANHAMMER  
+  
+  [@accidentaldeath](https://github.com/accidentaldeath) IS FOLKTOWN'S CHARA  
+
+  [@Yoshida-zawa](https://github.com/Yoshida-zawa) IS FOLKTOWN'S IZUKU MIDORIYA
+
+  [@mega-ambler](https://github.com/mega-ambler) IS FOLKTOWN'S MEGA AMBLER 
+  
+  [@metalcardbot](https://github.com/metalcardbot) IS FOLKTOWN'S BLAION 
