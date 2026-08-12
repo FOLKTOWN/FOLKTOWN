@@ -119,3 +119,11 @@ IF I MAKE ANY MISTAKES, DONT BE AFRAID TO LET ME KNOW ASWELL
   [@mega-ambler](https://github.com/mega-ambler) IS FOLKTOWN'S MEGA AMBLER 
   
   [@metalcardbot](https://github.com/metalcardbot) IS FOLKTOWN'S BLAION 
+
+  [@donniesgaptooth](https://github.com/donniesgaptooth) IS FOLKTOWN'S DARTH MAUL
+
+  [@A-ReGect](https://github.com/A-ReGect) IS FOLKTOWN'S TAWNY
+ 
+  [@DarkSci-Facility](https://github.com/DarkSci-Facility) IS FOLKTOWN'S COMMANDER
+
+  [@SKEETY-LULZ](https://github.com/SKEETY-LULZ) IS FOLKTOWN'S NICHOLASDEV
