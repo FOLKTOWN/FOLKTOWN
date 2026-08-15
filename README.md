@@ -85,9 +85,7 @@ IF I MAKE ANY MISTAKES, DONT BE AFRAID TO LET ME KNOW ASWELL
   [@eversleeping-town](https://github.com/eversleeping-town) IS FOLKTOWN'S ADA WONG
 
   [@WoundedRibbons](https://github.com/WoundedRibbons) IS FOLKTOWN'S KAVEH
-  
-  [@Chemicalshot](https://github.com/Chemicalshot) IS FOLKTOWN'S WEMMBU
-  
+    
   [@monoxiides](https://github.com/monoxiides) IS FOLKTOWN'S EGGCHAN
   
   [@zyvism](https://github.com/zyvism) IS FOLKTOWN'S LOVESHOT
@@ -127,3 +125,39 @@ IF I MAKE ANY MISTAKES, DONT BE AFRAID TO LET ME KNOW ASWELL
   [@DarkSci-Facility](https://github.com/DarkSci-Facility) IS FOLKTOWN'S COMMANDER
 
   [@SKEETY-LULZ](https://github.com/SKEETY-LULZ) IS FOLKTOWN'S NICHOLASDEV
+  
+  [@antidosage](https://github.com/antidosage) IS FOLKTOWN'S POMNI
+
+  [@rvsseII](https://github.com/rvsseII) IS FOLKTOWN'S GEORGE RUSSELL
+
+  [@zankaranpo](https://github.com/zankaranpo) IS FOLKTOWN'S EDOGAWA RANPO
+
+  [@piso4](https://github.com/piso4) IS FOLKTOWN'S COY PISO
+  
+  [@wireplayer](https://github.com/wireplayer) IS FOLKTOWN'S BADWARE
+
+  [@cowpokke](https://github.com/cowpokke) IS FOLKTOWN'S GARY SMITH
+  
+  [@T0R4X](https://github.com/T0R4X) IS FOLKTOWN'S MEDIC
+  
+  [@lostcxuse](https://github.com/lostcxuse) IS FOLKTOWN'S NEZOSHOKI
+  
+  [@Heart0fGold](https://github.com/Heart0fGold) IS FOLKTOWN'S MICHEL NEY
+  
+  [@justmonika-DDLC](https://github.com/justmonika-DDLC) IS FOLKTOWN'S MONIKA
+  
+  [@pIanetwithnomoon](https://github.com/pIanetwithnomoon) IS FOLKTOWN'S ULRICH
+
+  [@MsCarolynne](https://github.com/MsCarolynne) IS FOLKTOWN'S BOBETTE
+   
+  [@HachiHachiWare](https://github.com/HachiHachiWare) IS FOLKTOWN'S HACHIWARE
+
+  [@rockstarphainon](https://github.com/rockstarphainon) IS FOLKTOWN'S PHAINON
+
+  [@NARCISSISTICPERSONALITYDISORDER](https://github.com/NARCISSISTICPERSONALITYDISORDER) IS FOLKTOWN'S JOHN WARD
+
+  [@VERGILSSBEING](https://github.com/VERGILSSBEING) IS FOLKTOWN'S VERGIL  
+
+  [@Dol9hinn](https://github.com/Dol9hinn) IS FOLKTOWN'S DOL9HIN  
+
+  [@DEADP0ET](https://github.com/DEADP0ET) IS FOLKTOWN'S 007N7
