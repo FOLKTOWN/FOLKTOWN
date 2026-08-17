@@ -3,7 +3,7 @@ SUBMIT PLAYERS THROUGH ATA TO BE CHARACTERS OF FOLKTOWN
 
 EX. " 'GITHUB USER' IS FOLKTOWN'S 'CHARACTER NAME' "
 
-LAST UPDATED 8/14/26
+LAST UPDATED 8/17/26
 
 IF YOU WANT TO BE REMOVED, SEND A MESSAGE ASKING TO REMOVE YOURSELF (MESSAGES ARE ON REVIEW
 
@@ -35,6 +35,8 @@ IF I MAKE ANY MISTAKES, DONT BE AFRAID TO LET ME KNOW ASWELL
   [@zandiik](https://github.com/zandiik) IS FOLKTOWN'S DOTTORE
 
   [@pupfies](https://github.com/pupfies) IS FOLKTOWN'S WIFIES
+
+  [@pibblestick](https://github.com/pibblestick) IS FOLKTOWN'S SHINBASHI
 
   [@SQUEVILs](https://github.com/SQUEVILs) IS FOLKTOWN'S SQUIDDO
 
@@ -131,8 +133,6 @@ IF I MAKE ANY MISTAKES, DONT BE AFRAID TO LET ME KNOW ASWELL
   [@rvsseII](https://github.com/rvsseII) IS FOLKTOWN'S GEORGE RUSSELL
 
   [@zankaranpo](https://github.com/zankaranpo) IS FOLKTOWN'S EDOGAWA RANPO
-
-  [@piso4](https://github.com/piso4) IS FOLKTOWN'S COY PISO
   
   [@wireplayer](https://github.com/wireplayer) IS FOLKTOWN'S BADWARE
 
@@ -161,3 +161,11 @@ IF I MAKE ANY MISTAKES, DONT BE AFRAID TO LET ME KNOW ASWELL
   [@Dol9hinn](https://github.com/Dol9hinn) IS FOLKTOWN'S DOL9HIN  
 
   [@DEADP0ET](https://github.com/DEADP0ET) IS FOLKTOWN'S 007N7
+
+  [@Flowerhusbands](https://github.com/Flowerhusbands) IS FOLKTOWN'S SOLIDARITYGAMING
+
+  [@Nadd-nadd](https://github.com/Nadd-nadd) IS FOLKTOWN'S SIGIL
+
+  [@Xaplastcore](https://github.com/Xaplastcore) IS FOLKTOWN'S ORION PAX
+
+  [@CaptainLaserhawkk](https://github.com/CaptainLaserhawkk) IS FOLKTOWN'S CAPTAIN LASERHAWK
